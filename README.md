@@ -8,9 +8,8 @@
 
 
 
-︶' rui / ririㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ︶' int whenever (w2i)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             
+︶' rui / ririㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ︶' int whenever (w2i)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             
 ︶' Shadow Fictkinㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ              ︶'sometimes active
-
 ︶' HVY multishipper . (unless it's minor ships or proships)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="350" height="19" alt="1000013140" src="https://github.com/user-attachments/assets/82c1bee2-c4f6-467d-b585-1ecd007f7545" />
