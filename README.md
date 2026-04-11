@@ -27,6 +27,8 @@
 ︶'insensitive.      
 ︶'TOO sensitive ( it gets to a point, i don't mean to hurt anyone accidentally.)
 
+ALL negative people, do not interact.
+
 ![1000013069](https://github.com/user-attachments/assets/528f1839-9528-48d5-80a7-bd095005604c)
 
 
