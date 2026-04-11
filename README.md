@@ -8,9 +8,11 @@
 
 
 
-︶' rui / ririㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ︶' int whenever (w2i)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             
-︶' Shadow Fictkinㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ              ︶'sometimes active
-︶' HVY multishipper . (unless it's minor ships or proships)
+︶' rui / riri  
+︶'int whenever (w2i).  
+︶' Shadow Fictkin.  
+︶'sometimes active.  
+︶'HVY multishipper . (unless it's minor ships or proships)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="350" height="19" alt="1000013140" src="https://github.com/user-attachments/assets/82c1bee2-c4f6-467d-b585-1ecd007f7545" />
 
@@ -18,8 +20,8 @@
 ㅤ ㅤㅤ 𝘋𝘕𝘐's
 
 
-︶' Rude people.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   
-︶' zoophilesㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     
+︶' Rude people. ㅤㅤㅤㅤㅤㅤㅤㅤ   
+︶' zoophiles.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     
 ︶' disrespectful attitude.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ︶'12/below.   
 ︶'insensitive.      
