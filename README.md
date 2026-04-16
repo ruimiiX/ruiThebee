@@ -1,4 +1,5 @@
-<img width="2048" height="740" alt="1000013105" src="https://github.com/user-attachments/assets/85fdd3c3-cc19-4bf8-9a58-7f16c3669eb9" />
+<img width="560" height="40" alt="1000013175" src="https://github.com/user-attachments/assets/374f5c01-ba92-4460-832f-4d9d8de50474" />
+
 
 ㅤㅤㅤㅤㅤㅤㅤ![1000013114](https://github.com/user-attachments/assets/ee95362b-dfa1-447b-ae9f-6841419ccb41)
 
@@ -29,10 +30,11 @@
 
 ALL negative people, do not interact.
 
-![1000013069](https://github.com/user-attachments/assets/528f1839-9528-48d5-80a7-bd095005604c)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="300" height="300" alt="1000013100" src="https://github.com/user-attachments/assets/7d50af7a-023f-4996-b07c-90df4f7c17a3" />
 
 
-<img width="2048" height="740" alt="1000013106" src="https://github.com/user-attachments/assets/acd963b0-b011-4b9b-a2c7-863aea5df3b6" />
+
+<img width="560" height="40" alt="1000013175" src="https://github.com/user-attachments/assets/f312e70f-a5ed-49b8-99f0-a77b5cad147e" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     
